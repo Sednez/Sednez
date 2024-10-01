@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Sednez
+- 👀 I’m interested in coding, gaming, content creation
+- 🌱 I’m currently learning C++
+- 📫 How to reach me is to DM me on instagram @sednezz
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: I am 16yo
