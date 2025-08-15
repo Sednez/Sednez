@@ -3,4 +3,4 @@
 - 🌱 I’m currently learning C++
 - 📫 How to reach me is to DM me on instagram @sednezz
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I am 16yo
+- ⚡ Fun fact: I am 17yo
